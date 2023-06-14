@@ -1,0 +1,1 @@
+# class_exaple_3
